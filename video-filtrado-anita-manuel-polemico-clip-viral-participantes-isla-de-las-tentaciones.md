@@ -1,6 +1,11 @@
 La relación entre Anita Williams y Manuel González, dos de los protagonistas de 'La Isla de las Tentaciones', ha captado la atención de miles de espectadores y usuarios en redes sociales. Desde el inicio del reality, la conexión entre ambos ha sido evidente, generando tensiones en la relación de Anita con su pareja actual, Montoya.
 
-Sin embargo, en las últimas horas, un video filtrado en internet ha desatado un verdadero escándalo, mostrando un momento íntimo entre Anita y Manuel que muchos califican como el punto más polémico de la temporada.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 Este episodio ha generado un intenso debate en plataformas como Twitter ahora conocido como X e Instagram, donde los usuarios no han tardado en compartir opiniones divididas sobre lo ocurrido.
 
